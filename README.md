@@ -1,4 +1,4 @@
-# [.VOIR.] ~film~ Vice-Versa 2 (.2024.) en Streaming-VF en Francais, VOSTFR
+# [.VOIR.] ~ film~ Vice-Versa 2 (.2024.) en Streaming-VF en Francais, VOSTFR
 
 <i>Toujours maintenant, ici option pour Downloading or Watching (Vice-Versa 2) en streaming vf.Fraichement diplômée, Riley est désormais une adolescente, ce qui n’est pas sans déclencher un chamboulement majeur au sein du quartier général qui doit faire face à quelque chose d’inattendu : l’arrivée de nouvelles émotions ! Joie, Tristesse, Colère, Peur et Dégoût - qui ont longtemps fonctionné avec succès - ne savent pas trop comment réagir lorsqu’Anxiété débarque. Et il semble qu'elle ne soit pas la seule...</i>
 
